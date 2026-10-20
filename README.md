@@ -1,3 +1,12 @@
+"B-B-But you're not the real 1x1x1x1!!!! Y-You look nothing like them!!"
+
+
+B-B-B-Blocked.
+
+Like gee no kidding dipshit? I'm a 1x4 KIN, not the real deal. I can only ACT aggressive and have attitude sometimes.
+(unless you're a kind person and I know then hi I love you please don't go bald hahahah...)
+
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&size=26&pause=1000&color=425A14&width=435&lines=extra+info.)](https://git.io/typing-svg)
 
 *basic DNI's -12 dni(unless your a irl friend I know), 18+ depends if i'm already friends with you.
