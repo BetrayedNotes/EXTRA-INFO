@@ -9,6 +9,8 @@ I am 15+.*
 
    **I am a HEAVYY 1x4 kin, I will dry text sometimes and I will be slightly mean sometimes. Please don't take it to heart, 
     i might be upset at the moment.**
+
+   If you yumeship or have an oc x canon/oc x oc with 1x... I won't complain and you can c+h with me. I don't have yumeships but I don't hate them. Just don't claim me as your actual lover until I actually know you personally.
     
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&size=26&pause=1000&color=5A0000&width=435&lines=venting.)](https://git.io/typing-svg)
 
