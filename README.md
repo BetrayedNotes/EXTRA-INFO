@@ -4,7 +4,7 @@
 I am 15+.*
 
 
-   If my name was IWEC or iwc in it, you are allowed to c+h but I most likely won't communicate with you. sorry.
+   If my name has IWEC or iwc in it, you are allowed to c+h but I most likely won't communicate with you. sorry.
    
 
    **I am a HEAVYY 1x4 kin, I will dry text sometimes and I will be slightly mean sometimes. Please don't take it to heart, 
