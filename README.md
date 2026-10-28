@@ -1,10 +1,11 @@
 "B-B-But you're not the real 1x1x1x1!!!! Y-You look nothing like them!!"
 
-
 B-B-B-Blocked.
 
 Like gee no kidding dipshit? I'm a 1x4 KIN, not the real deal. I can only ACT aggressive and have attitude sometimes.
-(unless you're a kind person and I know then hi I love you please don't go bald hahahah...)
+(unless you're a kind person and I know you then hi I love you please don't go bald hahahah...)
+
+But I'm overall kind to strangers unless you prove to me I should act otherwise(trigger me, bother me, etc). So if you really wanna c+h but might worry about my temper trust me I can manage myself in a pony game. I won't bite ya head off for it
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&size=26&pause=1000&color=425A14&width=435&lines=extra+info.)](https://git.io/typing-svg)
