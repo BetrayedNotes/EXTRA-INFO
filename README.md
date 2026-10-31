@@ -31,7 +31,7 @@ I am 15+.*
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&size=26&pause=1000&color=315A3E&width=435&lines=int.)](https://git.io/typing-svg)
 
   I'm fine with making new friends, but I do get a little shy to int with others, so you can ask me.
-  discussing heavy topics are mentioned on my strawpage. discuss with caution. 
+  discussing heavy topics are okay if you ask first. discuss with caution. 
 
   I am shy with showing people my face and voice, so if you have any of my contacts, do not expect me to call you or face reveal
   openly. I have already been judged for my looks.
