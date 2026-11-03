@@ -7,6 +7,8 @@ Like gee no kidding dipshit? I'm a 1x4 KIN, not the real deal. I can only ACT ag
 
 But I'm overall kind to strangers unless you prove to me I should act otherwise(trigger me, bother me, etc). So if you really wanna c+h but might worry about my temper trust me I can manage myself in a pony game. I won't bite ya head off for it
 
+ALL THE OTHER OPEN/FORKED REPOSITORIES THAT I HAVE WERE NOT TO STEAL, I only forked them so I could see the coding and how they did
+certain things,,, I wouldn't want to steal another persons repository. Plus, I like keeping my readme's plain and simple.
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&size=26&pause=1000&color=425A14&width=435&lines=extra+info.)](https://git.io/typing-svg)
 
