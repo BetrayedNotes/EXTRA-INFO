@@ -1,6 +1,6 @@
 "B-B-But you're not the real 1x1x1x1!!!! Y-You look nothing like them!!"
 
-B-B-B-Blocked.
+B-B-B-Blocked. I block/hide freely.
 
 Like gee no kidding dipshit? I'm a 1x4 KIN, not the real deal. I can only ACT aggressive and have attitude sometimes.
 (unless you're a kind person and I know you then hi I love you please don't go bald hahahah...)
