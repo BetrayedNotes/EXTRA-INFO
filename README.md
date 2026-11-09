@@ -43,4 +43,4 @@ I am 15+.*
 
 I allow yumeshipping and shipping with my Lab oc (on my pfp), but please take note all my oc's are adults.
 
-I have a girlfriend, but I am open to being poly(she's fine with it). (1/2? max.)
+Recently broke up with my gf, I am now single, but I am open to being poly. (1/2? max.)
