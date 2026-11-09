@@ -41,4 +41,6 @@ I am 15+.*
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&size=26&pause=1000&color=4E5A41&width=435&lines=relationship%3F+%28open%29)](https://git.io/typing-svg)
 
+I allow yumeshipping and shipping with my Lab oc (on my pfp), but please take note all my oc's are adults.
+
 I have a girlfriend, but I am open to being poly(she's fine with it). (1/2? max.)
