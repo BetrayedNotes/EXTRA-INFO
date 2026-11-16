@@ -12,6 +12,8 @@ certain things,,, I wouldn't want to steal another persons repository. Plus, I l
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&size=26&pause=1000&color=425A14&width=435&lines=extra+info.)](https://git.io/typing-svg)
 
+I am very clingy with friends and like to hide behind people... so u might find me slightly hidden/covered lol,, c+h is heavily encouraged pls!!! 
+
 *basic DNI's -12 dni(unless your a irl friend I know), 18+ depends if i'm already friends with you.
 I am 15+.*
 
